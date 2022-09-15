@@ -1,1 +1,1 @@
-F/W, Embedded S/W Engineer
+Embedded S/W Engineer
